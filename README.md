@@ -57,6 +57,7 @@ Turnover Rate
       17.4% of the employees hired in the Auditing department and 50% of the Statistician III left the department
 
 Recommendations
+      
       Here are a few recommendations that will help the company to increase employee diversity and reduce the turnover rates Gender inclusiveness should be embraced especially for the 
       non-conforming. Also, hire more people from the age of 20 to 29
       Create an enabling environment for employees to work remotely, hence employing more people living outside of Ohio. Ask questions like can fewer employees work from the 
